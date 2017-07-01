@@ -152,3 +152,33 @@ P.S. I heard you both ordered a "tall" which is a small , so she didnt get it wr
 Take it easy, dude.  You could be flying first class on a wheel chair or with a terminal disease. Life is a bitch specially with individuals who talk just like yourself.﻿
 
 
+Definitely don't do engineering simply because you want the money! Only enter an engineering program if you're actually interested. If you aren't interested for real, you won't be able to make it through the rigorous programs.﻿
+
+
+Great vlog, i love the way you edited this, Looks like you had heaps of fun too. Instant subscribe and like :) Hope you wouldnt mind giving me some feedback on my latest vlog.
+
+
+I know my statement may sound generalized, but it was from my experience.  The same goes if you go to NYC and people are rude to you they are not representative of the USA as a whole.  No offense.﻿
+
+
+The school I am thinking about contracting with says I may not teach side-jobs without their permission. Is this common for ESL teacher contracts?﻿
+
+
+A zesty palate full of flavour of limes and citrus with a tingle on the tongue.
+
+
+I drink only because it cures my hangovers.﻿
+
+
+Impeding the flow of traffic will get you not only road rage but a ticket. Either pick up the pace or stay home. Your kind are actually more dangerous than speeders.
+
+
+I sometimes back in. for some reason all my family's cars and neighbors have been backing into each other. it is easy-er to back in, and just drive out when ya leave. have you ever been to Costco trying to back out and a big a** lifted truck is in your view? imagine if you just backed in.
+
+
+I would say, manouvering-wise it is easier to drive in and back out, but that you are supposed to be taught how to back in before the driving test, so you can drive out and back in, which is safer assuming you can do it.
+
+
+One reason _not_ to is at a supermarket - the boot [trunk] is at the rear, and easier to put shopping into if you don't have to squeeze past the car.
+
+
