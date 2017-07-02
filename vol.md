@@ -182,3 +182,30 @@ I would say, manouvering-wise it is easier to drive in and back out, but that yo
 One reason _not_ to is at a supermarket - the boot [trunk] is at the rear, and easier to put shopping into if you don't have to squeeze past the car.
 
 
+airmatic
+
+
+EDS: Electronic Differential System
+
+
+Automotive differential
+
+
+In a motor vehicle, the term powertrain or powerplant describes the main components that generate power and deliver it to the road surface, water, or air. This includes the engine, transmission, drive shafts, differentials, and the final drive (drive wheels, continuous track as in military tanks or caterpillar tractors, propeller, etc.).
+
+
+The drivetrain of a motor vehicle is the group of components that deliver power to the driving wheels. This excludes the engine or motor that generates the power. In contrast, the powertrain is considered to include both the engine or motor and the drivetrain.
+
+
+Shimano XT rear derailleur on a mountain bike
+
+
+sodium cyanide: Lethal Dose, 50%
+
+
+In Western musical notation, the staff or stave (plural for either: staves) is a set of five horizontal lines and four spaces that each represent a different musical pitch—or, in the case of a percussion staff, different percussion instruments.
+
+
+Manuscript paper (sometimes staff paper in U.S. English, or just music paper) is paper preprinted with staffs ready for musical notation.
+
+
